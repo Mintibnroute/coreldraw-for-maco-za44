@@ -1,4 +1,4 @@
-# 
+# CorelDRAW for macOS custom Plugin - export presets and typography tools is the best CorelDRAW for macOS plugin, featuring export presets and typography tools. Safe, efficient, and
 
 
 
